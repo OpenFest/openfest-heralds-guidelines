@@ -1,0 +1,1 @@
+# openfest-heralds-guidelines
